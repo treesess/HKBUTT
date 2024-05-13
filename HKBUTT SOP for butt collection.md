@@ -4,7 +4,11 @@ Using HKBUTT00076 as an example:
 
 ## 1 Butt(s) spotted in non-smoking area
 
-- Remind myself, CALM DOWN AND PICK UP LITTER. 
+Remind myself, CALM DOWN AND PICK UP LITTER. 
+
+Make sure you have the least PPE (e.g., mask), and control your breath during the collection process. Observing the direction of the wind usually helps you from inhaling hazardous chemicals from the butts. 
+
+**Warning:** do not underestimate the harm of cigarette butts on the ground or handlers. Especially when they are still fresh and the burning has not fully ceased, the progress of picking them up and sealing them into PMMA cases can cause damage to your body the same way secondhand smoke does. Before making an SOP for butt collection, I almost choked when picking up butts and kept coughing for hours. 
 
 ## 2 Location info pindown
 
