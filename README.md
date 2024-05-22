@@ -24,7 +24,7 @@ With all the butts in the staircase, they simply told me they found no one smoki
 
 ### 1.2 Smokers in non-smoking areas - Campus
 
-This is where I got frequent offences where I worked. I can be very clear to say, THEi Tsing Yi Campus and IVE Tsing Yi Campus. Of course, I complained, many times, verbally, officially. Of course, nothing worked. 
+This is where I got frequent offences where I worked. Of course, I complained, many times, verbally, officially. Of course, nothing worked. 
 
 Allow me to jump part of the stories here because they are lengthy. The situation is almost the same as where I lived. people smoked. Much more often than you can imagine. I can tell you this because of this HKBUTT project is making progress in confirming this statement. 
 
